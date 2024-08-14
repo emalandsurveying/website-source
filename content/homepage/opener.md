@@ -14,4 +14,4 @@ subdivisions primarily in the following counties:
 - Allegany County, NY
 
 If you are interested in a land survey and would like a quote, please
-give me a call!
+give me an email!
